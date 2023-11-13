@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bncblaze
-- 👀 I’m interested in ... women not with my husband.
+- 👀 I’m interested in ... art and NFTs
 - 🌱 I’m currently learning ... to love myself
-- 💞️ I’m looking to collaborate on ... a divorce
+- 💞️ I’m looking to collaborate on ... a pole dance project
 - 📫 How to reach me ...
 - on here.
 
